@@ -1,5 +1,4 @@
 # Règlement Mystic Roleplay
-*Le RP, c'est mieux quand tout le monde joue le jeu*
 
 ## I. Les bases de la civilisation
 
