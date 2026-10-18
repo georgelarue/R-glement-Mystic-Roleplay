@@ -34,4 +34,6 @@
 ### ⚖️ 7. Sanctions
 Tout manquement peut entraîner un avertissement, un bannissement temporaire ou définitif selon la gravité.
 
-**En rejoignant MRP, vous acceptez ce règlement.**
+**En rejoignant Mystic RolePlay, vous acceptez ce règlement.**
+
+### Tout membre du staff a le droit de juger une infraction sans qu'elle soit noté ici
